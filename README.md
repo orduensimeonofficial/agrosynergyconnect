@@ -19,4 +19,4 @@ We welcome developers, designers, testers, and community members to join AgroSyn
 ## 💡 Funding & Support
 A major challenge for AgroSynergyConnect is securing funding to support development and outreach. If you’re interested in partnering, sponsoring, or providing grants, please contact us to help us grow and empower smallholder farmers across Africa.
 
-Contact: [Your preferred email or social link here]
+Contact: orduenagrosynergyenterprise@gmail.com
